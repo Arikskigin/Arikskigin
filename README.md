@@ -10,7 +10,7 @@
 
 - ⚡ Succeed in my degree
 
-- 🔭 A new student position
+- 🔭 A student position
 
 
 
